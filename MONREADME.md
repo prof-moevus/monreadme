@@ -1,4 +1,4 @@
-:sparkles::sparkles::sparkles: Allo la classe :sparkles::sparkles::sparkles:
+:fire: :sparkles: :fire: Allo la classe :fire: :sparkles: :fire:
 ==============
 
 
