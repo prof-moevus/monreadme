@@ -1,7 +1,10 @@
-:fire: :fire: :fire: Allo la classe :fire: :fire: :fire:
+:fire: :sparkles: :fire: Allo la classe :fire: :sparkles: :fire:
 ==============
 
 
 tada!
-
+:smile:
 tada! 
+
+
+:sparkles: 
